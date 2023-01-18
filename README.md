@@ -9,8 +9,6 @@
 
 - 📫 How to reach me **leite.silassantos@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/silas-leite-08a669a9/](https://www.linkedin.com/in/silas-leite-08a669a9/)
-
 - ⚡ Fun fact **The cobra is deaf to the snake charmer's pipe, but follows the visual cue of the moving pipe and it can sense the ground vibrations from the snake charmer's tapping. Sometimes, for the sake of safety, all the venom in cobra's teeth is removed.**
 
 <h3 align="left">Connect with me:</h3>
